@@ -4,3 +4,5 @@ Obi-Wan Kenobi, oder später Ben Kenobi, war ein Jedi-Meister des Alten Ordens, 
 * Jedi Meister
 * Vornehm
 * Diplomatisch
+Obi Wan Kenobi bei Angriff der Klonkrieger:
+> Oh, deswegen hasse ich das Fliegen!
